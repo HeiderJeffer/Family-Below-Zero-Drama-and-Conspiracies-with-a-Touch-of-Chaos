@@ -1,6 +1,12 @@
 ### **Persona Analysis & Plot for the Dysfunctional Family**  
 *By Heider Jeffer*
 
+
+You can read the Arabic translation of the story below (at the bottom of the page).
+
+
+يمكنكم قراءة الترجمة العربية للقصة أدناه (في أسفل الصفحة).
+
 This family is a chaotic blend of manipulative masterminds, naive followers, religious fanaticism, and sheer incompetence. Their interactions create a twisted yet hilarious dynamic, where deception and power struggles fuel the household drama.  
 
 ---
