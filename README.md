@@ -1,6 +1,13 @@
 ### **Persona Analysis & Plot for the Dysfunctional Family**  
 *By Heider Jeffer*
 
+
+
+
+You can visit and view the Python code on GitHub at the following link:
+
+[Family Dynamics: A Directed Graph of Relationships and Alliances - GitHub](https://github.com/HeiderJeffer/Family-Below-Zero-Drama-and-Conspiracies-with-a-Touch-of-Chaos/blob/main/Family%20Dynamics%20A%20Directed%20Graph%20of%20Relationships%20and%20Alliances.ipynb)
+
 ### Intro
 This family is like a **"Shakespearean tragedy written by Heider Jeffer, a sitcom writer emotionally overwhelmed by the chaos"**—where plots collapse, intelligence doesn't help, and everyone betrays each other, yet they stay together because, simply put, they can't live without the drama! 🎭🔥
 
