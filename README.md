@@ -122,7 +122,7 @@ _As chaos reigns, Marilyn smirks and mutters to herself:_
 - **Tone:** Witty, chaotic, and sharply satirical.  
 - **Themes:** Manipulation, hypocrisy, blind loyalty, and the absurdity of family dynamics.  
 
-This family is like a **Shakespearean tragedy written by a drunk sitcom writer**—full of betrayals, ridiculous plots, and never-ending family feuds, making it the perfect setting for a dysfunctional comedy! 🎭🔥
+This family is like a **"Shakespearean tragedy written by Heider Jeffer, a sitcom writer who's emotionally drunk"**—where plots fall apart, intelligence doesn't help, and everyone betrays each other, yet they stay together because, quite simply, they can't live without the drama! 🎭🔥
 
 
 
@@ -236,4 +236,4 @@ This family is like a **Shakespearean tragedy written by a drunk sitcom writer**
 - **الأسلوب:** ساخر، سريع الوتيرة، مليء بالمكائد والمواقف العبثية.  
 - **المواضيع الرئيسية:** التلاعب، النفاق، الولاء الأعمى، وجنون العائلات المتفككة.  
 
-هذه العائلة عبارة عن **"تراجيديا شكسبيرية كتبها كاتب مسلسلات كوميدية سكران"**— حيث المؤامرات تنهار، والذكاء لا ينفع، والجميع يخون بعضهم البعض، لكنهم يظلون معاً لأنهم ببساطة لا يستطيعون العيش بدون الدراما! 🎭🔥
+هذه العائلة عبارة عن **"تراجيديا شكسبيرية كتبها الكاتب حيدر جعفر مسلسلات كوميدية سكران معنويا"**— حيث المؤامرات تنهار، والذكاء لا ينفع، والجميع يخون بعضهم البعض، لكنهم يظلون معاً لأنهم ببساطة لا يستطيعون العيش بدون الدراما! 🎭🔥
